@@ -1,1 +1,1 @@
-![image](https://github.com/CodeFish12/Private_Resume/2.jpg
+![image](https://github.com/CodeFish12/Private_Resume/p2.jpg
