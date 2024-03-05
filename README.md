@@ -1,1 +1,1 @@
-![CodeFish](https://github.com/CodeFish12/Private_Resume/p2.jpg)
+![CodeFish](https://github.com/CodeFish12/Private_Resume/blob/main/p2.jpg)
